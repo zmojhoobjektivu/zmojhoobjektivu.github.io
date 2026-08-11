@@ -24,7 +24,7 @@ https://www.instagram.com/zmojhoobjektivu/
 https://www.tiktok.com/@zmojhoobjektivu
 
 🎮 Twitch  
-https://www.twitch.tv/livefrommycam
+https://www.twitch.tv/zmojhoobjektivu
 
 ---
 
